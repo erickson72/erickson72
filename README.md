@@ -18,5 +18,11 @@
 Procuro novos desafios profissionais e uma efetivação no mercado. O desenvolvimento das minhas habilidades e a geração de resultados positivos são os meus objetivos, de modo que seja possível viabilizar um crescimento qualitativo e quantitativo da empresa.
 
 ## Contatos:
-E-mail: erickmendson1995@gmail.com
+
 Tel: (48) 99833-3864
+
+E-mail: 
+
+erickmendson1995@gmail.com
+
+
